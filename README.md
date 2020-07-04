@@ -1,9 +1,7 @@
-# Yizheng Shen
+# tl;dr ♥
 
-## tl;dr ♥
+minimalist, University and University of Minnesota alumni, bug contributor
 
-minimalist, UofT and UMN alumni, bug contributor
-
-watch animes, read novels, waste time
+watch animes, read novels, play games
 
 [twitter](https://twitter.com/trailing_comma)
